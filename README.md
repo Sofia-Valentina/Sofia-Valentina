@@ -1,4 +1,4 @@
-### Hi!! Eu sou a Sofia https://emojipedia.org/upside-down-face/
+### Hi!! Eu sou a Sofia 🙃
 
 
 - 🌱 Estudante de Front-end
