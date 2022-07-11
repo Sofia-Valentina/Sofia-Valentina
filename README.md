@@ -4,6 +4,8 @@
 - 🌱 Estudante de Front-end
 - 📫 Contate-me no email: srumbosnieves@gmail.com
 - 😄 Pronouns: ela/dela
+
+
  ![download20220701155302](https://user-images.githubusercontent.com/108839677/178345921-92208060-32de-4cc2-ab8e-97a8e8ad1e5b.png)
  ##
  
